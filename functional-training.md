@@ -1,5 +1,5 @@
 # Is "Functional Training" Legit?
-
+---
 In recent years, the fitness industry has seen the resurgence of "functional training," a concept that aims to enhance physical abilities for everyday tasks. However, the lack of a universally agreed-upon definition of "functional training" has led to confusion and debate. This article examines the key points surrounding functional training, focusing on its results and implications rather than delving into the intricacies of research.
 
 ## Key Takeaways
